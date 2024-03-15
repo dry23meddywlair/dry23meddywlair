@@ -1,4 +1,4 @@
-### edgardoyle
+###                            **Discord**: [edgardoyle](https://discord.com/users/edgardoyle)
 
 <!--
 **dry23meddywlair/dry23meddywlair** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
